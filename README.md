@@ -7,7 +7,7 @@ Author👨‍💻: https://github.com/khansaad1275 <br>
 
 Website🌎: www.Learntermux.tech <br>
 
-Instagram : https://https://www.instagram.com/vrinda._.10?igsh=MWkxZXJ3dzg3eWJlYg==/ <br>
+Instagram : https://www.instagram.com/vrinda._.10?igsh=MWkxZXJ3dzg3eWJlYg==/ <br>
 
 <br>
 <p align="center">
